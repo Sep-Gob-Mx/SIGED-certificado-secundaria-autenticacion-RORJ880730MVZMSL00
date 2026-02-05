@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-RORJ880730MVZMSL00
+RORJ880730MVZMSL00
